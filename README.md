@@ -1,3 +1,3 @@
 Be an interpreter-turned GEEK. 
-📫 Ping:dycavin@foxmail.com
+Ping:dycavin@foxmail.com
 
